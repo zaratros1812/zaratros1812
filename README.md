@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Flávio Silva
-- 👀 I’m interested in learning in moment is Basic for programação.
-- 🌱 I’m currently learning o basic...
+- 👀 I’m interested in learning more for programção e outher tecnlogias for my carrer proffisional.
+- 🌱 I’m currently learning o basic for programação.
 - 📫 How to reach me e-mail flaviohenriquecamilo121802@gmail.com...
   
 <!---
